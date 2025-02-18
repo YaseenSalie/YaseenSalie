@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YaseenSalie
-- 👀 I’m interested in cricket,soccer,video games and i do find fascination in geopoitics and astronomy
+- 👀 I’m interested in cricket,soccer,video games and i do find fascination in geopolitics and astronomy
 - 🌱 I’m currently learning Software Development and many more IT related stuff
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me phone number 0670988298
